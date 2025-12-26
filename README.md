@@ -1,4 +1,4 @@
-# positive-vibes
+# Positive Vibes: Daily affirmations to brighten your day 
 **Privacy Policy**
   **Last updated:** December 26, 2024
 
